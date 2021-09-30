@@ -1,2 +1,11 @@
 # A-Showcase-of-ME-
-A couple of ways to show you guys how and who I move through life with?!
+A couple of ways to show you guys how and who I move through life with?! I love listening to Harvey with them and eating tasty ramen!
+## These are my friends!!
+They are super silly and goofy, I love them!
+## This is my favorite sport ever - TENNIS~!!!
+I love all of the tennis girlies who taught me to never beat myself up, and let them beat me up ;)))
+## Something unique to me :P
+My green eyes make me feel like the most special lizard grinch in the world.
+## I love being Down With the Brown
+#curry #bollywood #brown&bougie #Sid&charvi4L
+Ok gtg now ttly. ill; check bad in soon #sleepy 8(
