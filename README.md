@@ -4,6 +4,9 @@ A couple of ways to show you guys how and who I move through life with?! I love 
 ## These are my friends!!
 They are super silly and goofy, I love them!
 
+## This is Mi Familia!
+They are hommies fr!
+
 ## This is my favorite sport ever - TENNIS~!!!
 I love all of the tennis girlies who taught me to never beat myself up, and let them beat me up ;)))
 
